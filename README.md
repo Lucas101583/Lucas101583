@@ -1,4 +1,4 @@
-☆ ⸺ LUCAS
+☆ ⸺ LUCAS P.
 
 - PRONOUNS : He/Him
 - HOBBIES : Gaming , Writing, Photography, Music & Reading
