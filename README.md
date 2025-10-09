@@ -3,7 +3,7 @@
 - PRONOUNS : He/Him
 - HOBBIES : Gaming , Writing, Photography, Music & Reading
 - FAVOURITE SONG : [Rust - No,Really](https://youtu.be/NqKA4Lv-BP4?si=AVOeDBFReyp15_eF)
-- WIKI BUREAUCRAT : <bold>The Thief of Vario</bold>
+- WIKI BUREAUCRAT : <strong>The Thief of Vario</strong>
 
 
 ⌢⌢ ✦ GITHUB:
