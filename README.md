@@ -8,5 +8,5 @@
 
 ⌢⌢ ✦ GITHUB:
 
-I'm lusing this account <strong>strictly</strong> as a school repository.
+I'm using this account <strong>strictly</strong> as a school repository.
 - Main account: [@IndigoMoon17](https://github.com/IndigoMoon17)
